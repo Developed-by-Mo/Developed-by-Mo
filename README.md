@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **upcoming projects**
 
-- 📫 How to reach me **mostafabusiness61104@gmail.com**
+- 📫 Reach me at **mostafabusiness61104@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
