@@ -1,5 +1,9 @@
 # 💫 About Me:
-🌱 I’m currently learning Python<br>👯 I’m looking to collaborate on upcoming projects<br>📫 Reach me at mostafabusiness61104@gmail.com
+🌱 I’m currently learning Python<br>👯 
+
+I’m looking to collaborate on upcoming projects<br>📫 
+
+Reach me at mostafabusiness61104@gmail.com
 
 
 ## 🌐 Socials:
