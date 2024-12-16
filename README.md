@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Python<br> 
+👋 Hi, I'm Mostafa<br> 
 
 👯 I’m looking to collaborate on upcoming projects<br> 
 
