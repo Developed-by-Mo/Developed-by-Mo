@@ -3,7 +3,7 @@
 
 👯 I’m looking to collaborate on upcoming projects<br> 
 
-📫 Reach me at mostafabusiness61104@gmail.com
+📫 Reach me at mostafasalama.my@gmail.com
 
 
 ## 🌐 Socials:
