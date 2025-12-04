@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I'm Mostafa<br> ß
+👋 Hi, I'm Mostafa<br>
 
 📫 Reach me at mostafasalama.my@gmail.com
 
